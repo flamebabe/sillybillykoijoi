@@ -8,35 +8,37 @@
 <br />
 <br />
 
-<img width="1310" height="1177" alt="image" src="https://github.com/user-attachments/assets/61478554-9b88-4907-8f5d-65e311c63753" />
+<img width="1098" height="732" alt="image" src="https://github.com/user-attachments/assets/493d0de6-46a4-4b9e-a44a-f8e49ec02be4" />
 
 
 
-<br />
-
-𝕬𝒃𝒐𝒖𝒕 𝒎𝒆
 
 <br />
 
-ㅤㅤ[𝖕](https://pronouns.cc/@sillybillykoijoi)ronouns.cc
-⠀ ⠀ ⠀ ⠀ ⠀[𝖆](https://sillybillykoijoi.atabook.org/)tabook⠀ ⠀ ⠀ ⠀ ⠀  [𝖌](https://guns.lol/sillybillykoijoi)uns.lol⠀ ⠀ ⠀ ⠀ ⠀  [𝖘](https://sillybillykoijoii.straw.page)trawpage
-ㅤ
-<br />
-<br />
-<img width="150" height="150" alt="image" src="https://github.com/user-attachments/assets/8ad18d73-31f2-457a-a549-f8b457dca334" />
-<br />
-> Heyey, call me Koi or Javier. :-) I'm in many fandoms, but I've been fixated on **Red Dead Redemption** for a year or two now, going strong. I love talking about my interests! ⸝⸝ I rarely interact first. （´∇｀''）
-<br />
+<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/282a8c1b-69ac-49fa-bba4-af71d6333550" />
 
-ᴿᵉᵃᵈ ˢᵗʳᵃʷ ᶠᵒʳ ᵐᵒʳᵉ ᶦⁿᶠᵒ
-
- 
-
- <br />
-<br />
-Do not interact if you associate with Ollie. Please read straw linked below, thank you!
 <br />
 <br />
 
-[ollie59845958](https://ollie59845958.straw.page/)
+<br />
+
+
+ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sillybillykoijoii.straw.page/)trawpageㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
+
+<br />
+<br />
+
+<sub> Rentry shared with Paulie <3 </sub>
+
+<br />
+<br />
+<br />
+<br />
+<br />
+<br />
+
+<details>
+</sub><summary>𝘚𝘱𝘰𝘵𝘪𝘧𝘺</summary><h5 align="center">
+  
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3176d66wffyhd4zfphvsyk44it3y&cover_image=true&theme=default&show_offline=false&background_color=0d1117&interchange=false&bar_color_cover=false&bar_color=aa0000)](https://github.com/kittinan/spotify-github-profile)
 
