@@ -1,7 +1,7 @@
 <div align="center">
 
   
-![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=724b2f&label=Folks&style=plastic)
+![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=f7393b&label=Folks&style=plastic)
 <br />
 
 
