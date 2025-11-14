@@ -1,34 +1,27 @@
 <div align="center">
 
   
-![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=f7393b&label=Folks&style=plastic)
+![](https://komarev.com/ghpvc/?username=sillybillykoijoi&color=000000&label=Folks&style=plastic)
 <br />
 
 
 <br />
 <br />
 
-<img width="1098" height="732" alt="image" src="https://github.com/user-attachments/assets/493d0de6-46a4-4b9e-a44a-f8e49ec02be4" />
+<img width="1248" height="1000" alt="image" src="https://github.com/user-attachments/assets/77478790-fce4-42de-b2da-eb6d11233bb7" />
 
 
 
 
-<br />
-
-<img width="200" height="300" alt="image" src="https://github.com/user-attachments/assets/282a8c1b-69ac-49fa-bba4-af71d6333550" />
-
-<br />
-<br />
-
-<br />
 
 
-ㅤ[𝕬](https://sillybillykoijoi.atabook.org/)tabook˒ㅤㅤ✦ㅤㅤ[𝕾](https://sillybillykoijoii.straw.page/)trawpageㅤㅤ✦ㅤ [𝕽](https://rentry.co/rogersstark)entryㅤ
+
+<sub>ㅤ[ata](https://sillybillykoijoi.atabook.org/)ㅤㅤ.ㅤㅤ[straw](https://sillybillykoijoii.straw.page/)ㅤㅤ.ㅤ [rentry](https://rentry.co/besamemucho)ㅤ</sub>
 
 <br />
 <br />
 
-<sub> Rentry shared with Paulie <3 </sub>
+<sub><sub> Rentry shared with ml <3 </sub></sub>
 
 <br />
 <br />
